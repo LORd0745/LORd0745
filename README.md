@@ -1,0 +1,6 @@
+- 👋👋 Hi this side Om Lokhande
+- 👨‍🎓👨‍🎓 currently studing IT course at IIIT Lucknow
+- ♟🎖 I am interested in playing chess. I am district level chess player. 
+- contact me 🤝🤝
+- whatsapp number- 9359838609
+- Insta handle- _lokhandeom07_

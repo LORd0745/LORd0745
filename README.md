@@ -1,5 +1,4 @@
 - 👋👋 Hi this side Om Lokhande
 - 👨‍🎓👨‍🎓 currently studing IT course at IIIT Lucknow 
 - contact me 🤝🤝
-- whatsapp number- 9359838609
 - Insta handle- _lokhandeom07_
